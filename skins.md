@@ -17,6 +17,3 @@
 
 # [emilia netwhynot edit](https://netwhynot.s-ul.eu/7BvMtzeh)
 ![screenshot044](https://user-images.githubusercontent.com/82736435/198824702-301f9bc0-812f-4343-a150-a782a7251296.jpg)
-
-# [roman malisz custom](https://netwhynot.s-ul.eu/5NEEhBL8)
-![image](https://user-images.githubusercontent.com/82736435/204118706-b5ab1e02-913b-45b2-954b-da52a3f0659d.png)
